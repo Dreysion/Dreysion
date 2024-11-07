@@ -8,6 +8,6 @@ I'm not currently trying to get people to follow me, but you're welcome to if yo
 
 I'll update here too as I make progress.
 
-[(Current Project: Pung)](https://dreysiongames.com/Inits/Pung.html)
+[(Current Project: Wizards' Duel)](https://dreysiongames.com/Wizards' Duel/Public/index.html)
 
 P.S. Don't look at my site, I haven't put any work into it yet!
